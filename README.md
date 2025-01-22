@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DivyaDeeptPandey
-- 👀 I’m interested in an Internship
+- 👀 I’m interested in an Job
 - 🌱 I’m currently learning Competetive Coding
 - 📫 Ph. 7455008667
 - 📧 divyaddeeptpandey@gmail.com
